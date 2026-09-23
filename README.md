@@ -8,3 +8,7 @@ Buy as much cocaine as possible. Costumers can ask for as much as 12g
 Coke is just as important as money. You need money to buy coke, and you need coke to have make money
 
 ...yeah i didnt say shit here lmfao 😭
+
+But anyway, u got the android app in the .apk (turn off play protect to download it)
+
+and the hmtl is for browser users
